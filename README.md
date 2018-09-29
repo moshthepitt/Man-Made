@@ -20,6 +20,7 @@ This book is my attempt to present this "formula" of success to you.  I must war
 
 ### The formula for success in life
 
+- Honest Living, Honest Action, Honest Communication
 - Lift hard
 - Eat right
 - Groom well, have a good sense of style
